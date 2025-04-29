@@ -5,7 +5,8 @@
 	- 夫婦でやっている個人居酒屋
 - ひらの(https://tabelog.com/tokyo/A1301/A130103/13236360/)
 	- 要予約、日本酒がうまい
-
+- STAND By Mi(https://tabelog.com/tokyo/A1301/A130103/13250081/)
+	- ワインバー、日祝はやっていないの
 ## 池袋
 - 魚の旨い店(https://tabelog.com/tokyo/A1305/A130501/13159900/)
 	- はらこ飯しかいい
